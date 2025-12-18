@@ -1,1 +1,1 @@
-### IDK Man ust leave me alone
+### IDK Man just leave me alone
